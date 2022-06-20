@@ -13,5 +13,5 @@ Growtopia first legit casino hack
 10) Enjoy Exploiting
 # ShowCase & How to use video
 https://youtu.be/s4JekcUfmHs
-#Info
+# Info
 leaked cause it was shared and sold unofficially , might release the source later
